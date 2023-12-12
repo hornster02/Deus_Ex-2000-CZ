@@ -1,4 +1,6 @@
 2023-09 STEAM
+<br/>
+JC Denton & Paul Denton
 
 podporuje 16:9 HOR+ rozlišení
 
